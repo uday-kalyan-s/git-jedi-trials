@@ -1,0 +1,1 @@
+My favourite pokemon is Pikachu because it is cute and adorable, but underlying this cuteness is great power.
