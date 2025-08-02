@@ -1,2 +1,0 @@
-My name is Ananya Mondal. I am currently interested in exploring and learning. I like reading story books, dancing and listening to music.
-My favourite pokemon is Pikachu because it is cute and adorable, but underlying this cuteness is great power.

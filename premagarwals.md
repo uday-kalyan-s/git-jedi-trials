@@ -1,1 +1,0 @@
-Hello, my name is Prem Agarwal. I love surviving. You should also try that! My favorite pokemon is spewpa, because I don't know what the hell it is.
