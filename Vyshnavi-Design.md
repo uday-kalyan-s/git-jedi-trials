@@ -1,1 +1,7 @@
-Hi, I am Vyshnavi. i am interested in learning new skills. i don't usally watch pokemon. But my fav cartoon is Doraemon.
+
+
+
+
+Hi, I'm Vyshnavi. I'm interested in exploring and learning new skills.Recently, I've begun reading books. I don't actually watch Pokémon. My fav catoon is Doraemon.
+
+
