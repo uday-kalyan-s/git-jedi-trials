@@ -1,1 +1,4 @@
-Hi, I'm Vyshnavi. I'm interested in exploring and developing my skills in different fields, including tech and editing. Recently, I've begun reading books. I don't actually watch Pokémon; I grew up watching Doraemon, and I love this cartoon for all the emotions it brings.
+
+
+Hi, I'm Vyshnavi. I'm interested in exploring and learning new skills.Recently, I've begun reading books. I don't actually watch Pokémon. My fav catoon is Doraemon.
+
